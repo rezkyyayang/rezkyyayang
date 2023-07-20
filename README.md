@@ -1,1 +1,1 @@
-Hello! You can call me Rezky. I am a final-year student at STIS Polytechnic of Statistics. <a href="https://linkr.bio/rezkyyayang/">More information</a>.
+Hello! You can call me Rezky. I am a fresh graduate and now working as a Statistician at LAN-RI. I'm passionate about statistics and data analysis. I am also interested in research, writing, and graphic design.. <a href="https://s.id/rezkyyayang/">More information</a>.
